@@ -1,4 +1,4 @@
-
+Experience rivals like never before with rivals Script underground, the #1 Script. Includes auto-farm and anti-ban for unbeatable performance.
 
 
 
